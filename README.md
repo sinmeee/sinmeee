@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sinmeee
+- 👀 I’m interested in mebe bebe
+- 🌱 I’m currently learning c++
+- 💞️ I’m looking to collaborate with viperr
